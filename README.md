@@ -51,7 +51,8 @@
 ### Name: PRAVEEN K
 ### Register Number: 212223230153
 
-![image](https://github.com/user-attachments/assets/723b2ae3-8428-425f-b2b9-4d0380ffd502)
+ ![image](https://github.com/user-attachments/assets/f8272a26-ba73-4f34-80e6-59c3da9c1922)
+
 
 
 ## RESULT:
